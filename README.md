@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @N00B-D3veloper
-- 👀 I’m interested in hmmmmmmm idon't know
+- 👀 I’m interested in hmmmmmmm i don't know
 - 🌱 I’m currently learning about coding ,desinging a apps and hmmmmmm
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me....tell me where do you live  ,then i will chart your course 
